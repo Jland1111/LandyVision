@@ -1,3 +1,3 @@
 # LandyVision
 Ideas 
-what I imagine will better society and better individual industries.
+of what I imagine will better society and better individual industries.
